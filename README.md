@@ -2,9 +2,9 @@
 I luv cats and tech.<br><br>Creativity is the only way I can express myself :3 <br>
 
 
-# 💻 Tech Stack:
+# 💻 Tech Stack: #:
 
-# 📊 GitHub Stats
+# 📊 GitHub Stats: :å
 
 Nub :l 
 
