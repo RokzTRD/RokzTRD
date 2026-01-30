@@ -1,12 +1,6 @@
-# 💫 About Me:
-I luv cats and tech.<br><br>Creativity is the only way I can express myself :3 <br>
 
+<br> I luv cats and tech.<br> 🚩
 
-# 💻 Tech Stack: #:
-
-# 📊 GitHub Stats: :å
-
-Nub :l 
 
 ---
 [![](https://visitcount.itsvg.in/api?id=RokzTRD&icon=0&color=0)](https://visitcount.itsvg.in)
